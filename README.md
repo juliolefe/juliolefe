@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @juliolefe
+- 💞️ I will in few years plant so many trees as possible all around the world.
+- I am looking to find some partnership to support my goal: make our planet green
